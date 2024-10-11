@@ -1,2 +1,2 @@
 # emilianomelen
-mi primer repositorio
+mi primer repositorio. Ir a Egipto es uno de mis grandes sueños. No solo por la belleza y misterio de sus antiguas civilizaciones, sino por la oportunidad de caminar entre monumentos que parecen salidos de un sueño. Imagino la emoción de estar frente a las pirámides de Giza, admirar la grandeza de la esfinge y recorrer los templos de Luxor y Karnak. Además, el Nilo es una pieza fundamental de la historia de la humanidad, y navegar por él sería como viajar en el tiempo. Quiero experimentar la cultura, los colores y sabores de Egipto, y conocer de cerca las raíces de una civilización que sigue fascinando al mundo.
